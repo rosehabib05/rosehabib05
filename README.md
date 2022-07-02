@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @rosehabib05
+- 👀 I’m interested in neuroscience, biology, medicine, artificial intelligence, programming and graphic design.I love french and I like collecting crystals <3
+- 🌱 I’m currently learning Python
+- 📫 How to reach me:instagram @rosehabibb
